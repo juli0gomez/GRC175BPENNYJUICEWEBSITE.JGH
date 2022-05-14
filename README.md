@@ -1,2 +1,2 @@
-# GRC175BPENNYJUICEWEBSITE.JGH
+# juli0gomez.github.io
 Penny Juice Final 
